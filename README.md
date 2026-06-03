@@ -7,7 +7,7 @@
 
 - 📫 Você me acha através do e-mail **vitorvs133@hotmail.com**
 
-- 📄 Saiba mais sobre minhas experiências [https://www.linkedin.com/in/vitor-varelo-de-sousa-v09112002/](https://www.linkedin.com/in/vitor-varelo-de-sousa-v09112002/)
+- 📄 Saiba mais sobre minhas experiências **https://www.linkedin.com/in/vitor-vsousa/**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
